@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Chandu
-- 👀 I’m interested in Wasting Time 
+- 👀 I’m interested in EV's 
 - 🌱 I’m currently learning AI/ML
 - 📫 How to reach me @chandu_kakulapati(Instagram)
 
